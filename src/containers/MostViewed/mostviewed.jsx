@@ -1,10 +1,10 @@
 import React from 'react';
-import './MostViewed.css';
+import './mostviewed.css';
 
-const mostviewed = () => {
+const MostViewed = () => {
   return (
-    <div>mostviewed</div>
+    <div>MostViewed</div>
   )
 }
 
-export default mostviewed
+export default MostViewed

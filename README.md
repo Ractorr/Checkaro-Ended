@@ -3,19 +3,23 @@ Checkaro is a website where you can compare other products on different differen
 ## Team Members
 ### Sundar Bhai
 ![2][def2]
+
 Tez Dimag but usse tez uska haath (You know You Know)
 ### Nirbhay Bhai 
 ![1][def]
+
 Narmada Mayyyiaaa Kiii Jaaaaaaiiiiiiiiiiiii
 ### Dipu Bhai
 [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/IH92vUve7rA/0.jpg)](https://www.youtube.com/watch?v=IH92vUve7rA_ID_HERE)
-]
+
 Randua Chalo Bhopal Ke Karaykarta
 ### Vishal Bhai
 ![4][def4]
+
 Sigma Male (Shyd)
 ### Rohit Bhai
 ![5][def5]
+
 Mallu Lover
 ### With our all due respect OUR LORD 
 ## HARENDRA MANJHI

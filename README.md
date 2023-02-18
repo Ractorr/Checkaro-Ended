@@ -19,7 +19,7 @@ Randua Chalo Bhopal Ke Karaykarta
 ## Vishal Bhai
 Sigma Male (Shyd)
 
-<img src="https://i.kym-cdn.com/photos/images/facebook/001/492/083/bb7.jpg" width="720" height="480">
+<img src="https://i.kym-cdn.com/photos/images/facebook/001/492/083/bb7.jpg" width="360" height="480">
 
 ### Rohit Bhai
 Mallu Lover

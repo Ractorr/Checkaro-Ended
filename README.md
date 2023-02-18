@@ -24,7 +24,7 @@ Sigma Male (Shyd)
 ## Rohit Bhai
 Mallu Lover
 
-<img src="https://i.ytimg.com/vi/pywx65Tfmq8/maxresdefault.jpg" width="360" height="360">
+<img src="https://i.ytimg.com/vi/pywx65Tfmq8/maxresdefault.jpg" width="360" height="240">
 
 
 ### With our all due respect OUR LORD 

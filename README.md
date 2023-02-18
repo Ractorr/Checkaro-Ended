@@ -24,16 +24,15 @@ Sigma Male (Shyd)
 ### Rohit Bhai
 Mallu Lover
 
-<img src="<img src="https://i.ytimg.com/vi/pywx65Tfmq8/maxresdefault.jpg" width="720" height="480">
+<img src="https://i.ytimg.com/vi/pywx65Tfmq8/maxresdefault.jpg" width="720" height="480">
 
 
 ### With our all due respect OUR LORD 
 ## HARENDRA MANJHI
-![6][def6]
+
+<img src="https://media.licdn.com/dms/image/C4D03AQHm9QtcR2rtNA/profile-displayphoto-shrink_400_400/0/1656600296915?e=1681948800&v=beta&t=uGznhEdQdpy0HpegFQdccA7L1PIsyOhBHqAIKUgNrD0" width="720" height="480">
+
 
 
 
 [def]: https://www.samvad.in/Encyc/2022/2/7/WhatsApp-Image-2022-02-07-at-5.27.30-PM_202202071737431546_H@@IGHT_838_W@@IDTH_1280.jpeg  
-[def4]: 
-[def5]: 
-[def6]: https://media.licdn.com/dms/image/C4D03AQHm9QtcR2rtNA/profile-displayphoto-shrink_400_400/0/1656600296915?e=1681948800&v=beta&t=uGznhEdQdpy0HpegFQdccA7L1PIsyOhBHqAIKUgNrD0

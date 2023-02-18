@@ -9,5 +9,5 @@ Narmada Mayyyiaaa Kiii Jaaaaaaiiiiiiiiiiiii
 Randua Chalo Bhopal Ke Karaykarta
 ### Vishal Bhai
 Sigma Male (Shyd)
-### Or mai
+### Rohit Bhai
 Mallu Lover

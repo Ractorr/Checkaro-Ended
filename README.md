@@ -4,18 +4,20 @@ Checkaro is a website where you can compare other products on different differen
 ### Sundar Bhai
 Tez Dimag but usse tez uska haath (You know You Know)
 
-<img src="https://thumbs.dreamstime.com/z/touching-himself-unrecognizable-man-watching-pornography-masturbating-online-porn-video-digital-world-sex-erotic-touching-235791187.jpg" width="250" height="250">
+<img src="https://thumbs.dreamstime.com/z/touching-himself-unrecognizable-man-watching-pornography-masturbating-online-porn-video-digital-world-sex-erotic-touching-235791187.jpg" width="480" height="480">
 
 ### Nirbhay Bhai 
 Narmada Mayyyiaaa Kiii Jaaaaaaiiiiiiiiiiiii
 
-![1][def]
+   
+<img src="https://www.samvad.in/Encyc/2022/2/7/WhatsApp-Image-2022-02-07-at-5.27.30-PM_202202071737431546_H@@IGHT_838_W@@IDTH_1280.jpeg" width="480" height="480">
+
 
 ### Dipu Bhai
 Randua Chalo Bhopal Ke Karaykarta
 
 
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/IH92vUve7rA/0.jpg | width=100)](https://www.youtube.com/watch?v=IH92vUve7rA_ID_HERE )
+![<img src="https://img.youtube.com/vi/IH92vUve7rA/0.jpg" width="480" height="480">](https://www.youtube.com/watch?v=IH92vUve7rA_ID_HERE )
 
 ### Vishal Bhai
 Sigma Male (Shyd)

@@ -8,7 +8,7 @@ Tez Dimag but usse tez uska haath (You know You Know)
 ![1][def]
 Narmada Mayyyiaaa Kiii Jaaaaaaiiiiiiiiiiiii
 ### Dipu Bhai
-![3][![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/IH92vUve7rA/0.jpg)](https://www.youtube.com/watch?v=IH92vUve7rA_ID_HERE)
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/IH92vUve7rA/0.jpg)](https://www.youtube.com/watch?v=IH92vUve7rA_ID_HERE)
 ]
 Randua Chalo Bhopal Ke Karaykarta
 ### Vishal Bhai

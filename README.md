@@ -2,22 +2,27 @@
 Checkaro is a website where you can compare other products on different different E-Commerce Websites.
 ## Team Members
 ### Sundar Bhai
+Tez Dimag but usse tez uska haath (You know You Know)
+
 ![2][def2]
 
-Tez Dimag but usse tez uska haath (You know You Know)
 ### Nirbhay Bhai 
+Narmada Mayyyiaaa Kiii Jaaaaaaiiiiiiiiiiiii
+
 ![1][def]
 
-Narmada Mayyyiaaa Kiii Jaaaaaaiiiiiiiiiiiii
 ### Dipu Bhai
+Randua Chalo Bhopal Ke Karaykarta
+
+
 [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/IH92vUve7rA/0.jpg)](https://www.youtube.com/watch?v=IH92vUve7rA_ID_HERE)
 
-Randua Chalo Bhopal Ke Karaykarta
 ### Vishal Bhai
-![4][def4]
-
 Sigma Male (Shyd)
+
+![4][def4]
 ### Rohit Bhai
+
 ![5][def5]
 
 Mallu Lover

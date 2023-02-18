@@ -4,12 +4,12 @@ Checkaro is a website where you can compare other products on different differen
 ## Sundar Bhai
 Tez Dimag but usse tez uska haath (You know You Know)
 
-<img src="https://thumbs.dreamstime.com/z/touching-himself-unrecognizable-man-watching-pornography-masturbating-online-porn-video-digital-world-sex-erotic-touching-235791187.jpg" width="720" height="480">
+<img src="https://thumbs.dreamstime.com/z/touching-himself-unrecognizable-man-watching-pornography-masturbating-online-porn-video-digital-world-sex-erotic-touching-235791187.jpg" width="480" height="360">
 
 ## Nirbhay Bhai 
 Narmada Mayyyiaaa Kiii Jaaaaaaiiiiiiiiiiiii
    
-<img src="https://www.samvad.in/Encyc/2022/2/7/WhatsApp-Image-2022-02-07-at-5.27.30-PM_202202071737431546_H@@IGHT_838_W@@IDTH_1280.jpeg" width="720" height="480">
+<img src="https://www.samvad.in/Encyc/2022/2/7/WhatsApp-Image-2022-02-07-at-5.27.30-PM_202202071737431546_H@@IGHT_838_W@@IDTH_1280.jpeg" width="480" height="360">
 
 ## Dipu Bhai
 Randua Chalo Bhopal Ke Karaykarta
@@ -19,12 +19,12 @@ Randua Chalo Bhopal Ke Karaykarta
 ## Vishal Bhai
 Sigma Male (Shyd)
 
-<img src="https://i.kym-cdn.com/photos/images/facebook/001/492/083/bb7.jpg" width="360" height="480">
+<img src="https://i.kym-cdn.com/photos/images/facebook/001/492/083/bb7.jpg" width="240" height="360">
 
 ## Rohit Bhai
 Mallu Lover
 
-<img src="https://i.ytimg.com/vi/pywx65Tfmq8/maxresdefault.jpg" width="720" height="480">
+<img src="https://i.ytimg.com/vi/pywx65Tfmq8/maxresdefault.jpg" width="360" height="360">
 
 
 ### With our all due respect OUR LORD 

@@ -3,7 +3,8 @@ import './mostviewed.css';
 
 const MostViewed = () => {
   return (
-    <div>MostViewed</div>
+    <div> MostViewed
+    </div>
   )
 }
 

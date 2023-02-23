@@ -1,7 +1,7 @@
 import React from 'react';
 
 import { Article, Brand, CTA, Features, Navbar } from './components';
-import {Featured, Footer, Header, Recommanded,  ShoppingImage } from './containers';
+import { Featured, Footer, Header, MostViewed, SelectCatagories, Recommanded,  ShoppingImage } from './containers';
 
 const App = () => {
   return (
@@ -12,10 +12,12 @@ const App = () => {
     </div>
       <Brand />
       <Article />
-      <CTA /> y
+      <CTA /> 
       <Features />
       <Featured />
       <Footer />
+      <MostViewed />
+      <SelectCatagories />
       <Recommanded />
       <ShoppingImage />
     </div>
